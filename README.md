@@ -11,7 +11,7 @@ complex challenges. My skills lie in analyzing data, uncovering actionable insig
 solutions all while effectively communicating the outcome and impact.
 
 * 🌍  I'm based in Colorado
-* 🖥️  See my portfolio at [Linkedin](http://www.linkedin.com/in/evan-mccarthy-399163252/)
+* 🖥️  Check out my Linkedin profile @ [Linkedin](http://www.linkedin.com/in/evan-mccarthy-399163252/)
 * ✉️  You can contact me at [evanmccarthy4410@gmail.com](mailto:evanmccarthy4410@gmail.com)
 
 
